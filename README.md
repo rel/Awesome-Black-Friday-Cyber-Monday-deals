@@ -235,6 +235,7 @@ Your most affordable form builder with Logic, Integrations, Duplicate checks, Si
 | 7 | [Mail Mastery](https://unapologeticih.gumroad.com/l/nyzwb) | Simply copy, paste and customize 250 Email Templates to get the answers you want from clients and seal the deal with 30 Business Documents to boot. | 60% OFF. Lifetime Access and Updates with code **60OFFMM** | 11-20-2024 - 12-31-2024 |
 | 8 | [The Big Service Business Bundle](https://unapologeticih.gumroad.com/l/bsbb) | Grow your business with the all in one, unbeatable bundle 1) Find Opportunities on Autopilot with Fuelance; 2) Onboard Clients with a 35+ Page Welcome Pack; 3) Communicate with clients with 250+ Customizable Email Templates; 4) Prospect with B2B Signals & Tracker; 5) Craft a blog using the Blog Basics Workbook. | 75% OFF. Lifetime Access and Updates - **75BSB** | 11-20-2024 - 12-31-2024 |
 | 9 | [BacklinkMonitor](https://backlinkmonitor.com/) | Upgrade your link-building game and start tracking like a pro with BacklinkMonitor. | 30% OFF on All Plans with code **BLACKFRIDAY30** 🎁 | 11-20-2024 - 12-03-2024 |
+| 10 | [Appfigures](https://appfigures.com) | Grow your app's downloads and revenue with the best-in-class ASO and App Intelligence tools. | 50% OFF ASO + App Intelligence with Code **BF2450** | 11-25-2024 - 12-2-2024 |
 
 
 ## 📩 Newsletter & Communities
